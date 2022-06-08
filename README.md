@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @GabySantos98
+- 👀 I’m interested in  aprende a estudar
+- 🌱 I’m currently learning pensamentos computacional
+- 💞️ I’m looking to collaborate com  os estudos
+- 📫 How to reach me gabriele.santosda.silva@escola.pr.gov.br
+--->
